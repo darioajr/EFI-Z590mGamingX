@@ -1,0 +1,1 @@
+# EFI-Z590mGamingX
